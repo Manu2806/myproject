@@ -1,3 +1,8 @@
+
+
+<img style="-webkit-user-select: none" src="http://d2ouvy59p0dg6k.cloudfront.net/img/coralreef_fiji_105788_349597.jpg">
+
+
 Coral Reef Facts
 
 Coral reefs are rocky mounds and/or ridges formed in the sea by living things through the accumulation and deposition of limestone (calcium carbonate).
